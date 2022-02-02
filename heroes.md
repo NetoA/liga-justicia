@@ -11,6 +11,8 @@
 * Mr. Ed
 * Guilligan
 * Chavelo
+* Chapulin Colorado
+
 
 
 
